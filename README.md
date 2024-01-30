@@ -6,7 +6,7 @@
 - 😄 Pronouns: ... I'm straight so he/him ... in the day.
 - ⚡ Fun fact: ... I have so many female friends that other thinks I'm gay but they don't know that I have something for them sooner or later. (maniacally laughs)
 
-That's all you have to know abput me ... for now.
+That's all you have to know about me ... for now.
 
 <!---
 Core-Sage/Core-Sage is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
